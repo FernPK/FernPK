@@ -1,7 +1,5 @@
 # Hi! My name is Pornnapat Ketplung 
 
-### Web development learner
-
 Visit my [Frontend portfolio website🌻](https://pornnapatk-portfolio.vercel.app)
 
 - 🌍  I'm based in Bangkok, Thailand
