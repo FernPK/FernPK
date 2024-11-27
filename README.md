@@ -1,4 +1,4 @@
-# Hi! My name is Pornnapat Ketplung 
+# Hi! I'm Pornnapat Ketplung 
 
 ### Skills  
 
